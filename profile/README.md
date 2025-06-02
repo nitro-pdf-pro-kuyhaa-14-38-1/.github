@@ -9,7 +9,7 @@ Versi terbaru ini hadir dengan peningkatan performa, kompatibilitas dokumen yang
 
 
 
-## [👉👉 Nitro PDF Pro v14.38.1](https://freesoftcr.com/dl)
+## [👉👉 Nitro PDF Pro v14.38.1](https://freesoftcr.com/dl/)
 
 
 
